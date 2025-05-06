@@ -1,2 +1,0 @@
-# magdalena-cv
-porto
